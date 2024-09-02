@@ -1,0 +1,8 @@
+- 👋 Hi, I’m voatablezues
+- ral name is eric
+- 👀 I’m interested in games. making and playing
+- 🌱 I’m currently learning the making part
+- 💞️ I’m looking to collaborate on NOTHING(:
+- 📫 How to reach me? ... dont!
+- ⚡ Fun fact: hi
+- ❕my yt: https://www.youtube.com/@VoatableZues999
